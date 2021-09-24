@@ -1,2 +1,0 @@
-# Bug.-Report-TESTE-PR-TICO-CALETA-GAMING
-Bug. Report   CALETA GAMING
